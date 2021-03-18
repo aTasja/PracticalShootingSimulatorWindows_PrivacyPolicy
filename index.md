@@ -3,8 +3,8 @@
 Last updated: March 18, 2021
 
 
-This Privacy Policy describes how we, AVS App Development, collect, store and use information about you when you use or interact with our website, www.pssgame.xyz (our website), while registration in Practical Shooting Simulator (PSS) and where we otherwise obtain or collect information about you. This Privacy Policy is effective from 25th March 2021.
-We use Your Personal data to provide and improve the Service. By using the Service, You agree to the collection and use of information in accordance with this Privacy Policy. 
+This Privacy Policy describes Our policies and procedures on the collection, use and disclosure of Your information when You use the Service and tells You about Your privacy rights and how the law protects You.
+We use Your Personal data to provide and improve the Service. By using the Service, You agree to the collection and use of information in accordance with this Privacy Policy.
 
 ## Interpretation and Definitions
 
